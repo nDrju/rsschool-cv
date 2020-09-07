@@ -2,7 +2,7 @@
 
 Located in **Minsk, Belarus**  
 **+375 29 202-93-13  
-[drjubeatz@gmail.com](mailto:ndrjubeatz@gmail.com)**
+[ndrjubeatz@gmail.com](mailto:ndrjubeatz@gmail.com)**
 
 ## Experience and education
 **Self-education:**
